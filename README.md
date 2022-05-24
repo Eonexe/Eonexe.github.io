@@ -1,2 +1,1 @@
-# discordmoment.github.io
-nig
+bruh
